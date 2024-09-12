@@ -1,0 +1,1 @@
+# AI_solution_for_farmer
