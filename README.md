@@ -1,1 +1,1 @@
-# AI_solution_for_farmer
+#A One Stop Solution focusing on Tourism!
