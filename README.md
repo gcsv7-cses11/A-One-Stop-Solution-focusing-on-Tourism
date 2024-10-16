@@ -1,1 +1,1 @@
-#A One Stop Solution focusing on Tourism!
+#A One Step Solution focusing on Tourism!
